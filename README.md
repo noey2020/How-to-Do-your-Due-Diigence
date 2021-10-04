@@ -1,4 +1,4 @@
-# How-to-Do-your-Due-Diigence
+# How-to-Do-your-Due-Diligence
 
 October 3, 2021
 
